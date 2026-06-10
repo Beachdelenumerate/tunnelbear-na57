@@ -1,4 +1,4 @@
-
+Get the ultimate TunnelBear app with TunnelBear smart App: multi-protocol-support & static-IP. Featuring multi-protocol-support and static-IP, it's the best choice for secure and
 
 
 
